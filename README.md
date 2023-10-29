@@ -11,5 +11,3 @@ You can contact me by writting on github clearly, but also on these social media
 
 and my email keyci1113@gmail.com
 
-Im still working on this : (
-
